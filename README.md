@@ -1,2 +1,2 @@
-In this Repo I will sahre my homework from the Zoomcamp 
+In this Repo I will share my homework from the Zoomcamp 
 
